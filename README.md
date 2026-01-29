@@ -4,7 +4,7 @@
 
 **Objetivo:**
 Busco mi primera oportunidad profesional en IT para aportar capacidad técnica 
-sumada a la mi experiencia laboral (ex Aerolíneas Argentinas, 10 años) 
+sumada a mi experiencia laboral (ex Aerolíneas Argentinas, 10 años) 
 y responsabilidad de un perfil con experiencia corporativa.
 
 ---
